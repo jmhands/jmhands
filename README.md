@@ -1,1 +1,1 @@
-hi I'm @jmhands on github, @Storage_jm on keybase! head of storage at [Chia](https://www.chia.net/) 
+@Storage_jm on keybase! SSD expert, storage blockchains, sustainability leader, pretend hacker
